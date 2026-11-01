@@ -1,0 +1,2 @@
+# Alteration-and-Clay-Mapping-using-Band-Ratio-Models-Sabins-Kaufmann-Hashim-Pour-
+1. Aim  • To identify hydrothermal alteration zones and clay minerals using band ratio  techniques.  • To apply Sabins, Kaufmann, and Hashim &amp; Pour models for mineral mapping.    2. Study Area  • Sonbhadra district is located in the southeastern part of Uttar Pradesh and is known  for its rich mineral resources.   
